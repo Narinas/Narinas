@@ -1,4 +1,4 @@
-## You've reached Eder Trujillo's profile
+## You've reached my GitHub profile
 Feel free to wander around 🌲🌲🌲
 
 I do *math* stuff most of the time.
